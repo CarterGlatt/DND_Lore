@@ -1,0 +1,1 @@
+The Vilcolla Vale is the name of the valley that the [[The Dominion of Vallonde||Dominion]] is located within.  Surrounded by mountains on all sides, the only entrance to the valley was the [[Zanula Caves]], but this entrance was sealed by the founders of the Dominion.  Now, the Vale is effectively 
