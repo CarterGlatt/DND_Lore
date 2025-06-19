@@ -1,5 +1,5 @@
 > "What purpose is there to continued existence, if not to protect what is left behind?"
-> \- Lord {Insert Good Name Here}
+> \- Lord Oswyn Adhon
 
 
 ## Background
